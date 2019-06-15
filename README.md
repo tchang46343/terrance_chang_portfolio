@@ -1,2 +1,0 @@
-# terrance_chang_portfolio
-terrance_chang_portfolio
